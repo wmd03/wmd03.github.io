@@ -1,6 +1,4 @@
-yessss
+Nic tu nie ma
 
-dsadasdas
-dsadas
-dasdas
-tak
+
+Nie ma czego plądrować
